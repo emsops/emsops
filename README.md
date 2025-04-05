@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="https://i.postimg.cc/kgJ1X37K/SEASON34.png"
+    <img width="600" src="https://i.postimg.cc/k4bwh7y3/SEASON34.png"
 <p align="center">
 </br>hi im <b>em</b> | (<a href=https://en.pronouns.page/@emsop>+</a>) | 21 | ENTP
 <br><b>ALWAYS whisper to int</b> i'm off tab 24/7
