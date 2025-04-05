@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="https://f2.toyhou.se/file/f2-toyhou-se/images/97549613_2kxx2GqiMOehEB3.png?1742627543"
+    <img width="600" src="https://i.postimg.cc/pdd6kN7R/bruh.png"
 <p align="center">
 </br>hi im <b>em</b> | (<a href=https://en.pronouns.page/@emsop>+</a>) | 21 | ENTP
 <br><b>ALWAYS whisper to int</b> i'm off tab 24/7
