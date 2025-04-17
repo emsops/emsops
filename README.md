@@ -9,4 +9,4 @@
 <br>talk to me if you want yay!!
 <br><b>please don't sit with me without asking</b>
 <p align="center"><br><b>dni</b>
- <br><b>minors</b>, basic DNI, proshippers, ships, rp :thumbs up:
+ <br><b>minors</b>, basic dni, proshippers, ships, rp. <b>aesvic / nortpheus</b>, i'd prefer no mention of these
