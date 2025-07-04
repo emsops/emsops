@@ -1,7 +1,7 @@
 <p align="center">
     <img width="300" src="https://i.postimg.cc/YSWnPXwP/cutefat.png"
 <p align="center">
-</br>hi im <b>em</b> | she(<a href=https://en.pronouns.page/@emsop>+</a>) | 21 | ENTP
+</br>hi im <b>liv</b> | she(<a href=https://en.pronouns.page/@emsop>+</a>) | 21 | ENTP
 <br><b>ALWAYS whisper to int</b> i'm off tab 24/7
 <br><b>interests:</b> <b>orpheus deross</b> & aesop carl + more of me in my <a href=https://emsop.straw.page/>strawpage</a>
 <p align="center"> <br><b>about me / byi </b>
